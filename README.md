@@ -1,4 +1,4 @@
-Shenanigans
+Shenanigans :p
 
 <!---
 0qln/0qln is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
